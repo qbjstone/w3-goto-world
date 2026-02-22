@@ -10,6 +10,7 @@
 * [底层穷人为什么完不成原始资本积累？ - 一支清流的回答 - 知乎](https://www.zhihu.com/question/1993603744441587206/answer/2002763961846759447)
 * [为什么老师不提前把社会的现实告诉学生？ - Mivraquel的回答 - 知乎](https://www.zhihu.com/question/1953870384047841580/answer/2004345413101172561)
 * [为什么大多数人都没有独立思考能力？ - 眼镜小丑的回答 - 知乎](https://www.zhihu.com/question/20364224/answer/2008260738477741486)
+* [说出“一个人可以被毁灭，但不能被打败”的海明威为何会自杀？ - 红林矢的回答 - 知乎](https://www.zhihu.com/question/1925841537696260680/answer/2003179715725387006)
 * 互联网已经将绝大部分信息差抹除了，知识已经随处可以获得，为何大部分人依旧无法获得大幅突破？
     * [Thoughts Memo的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/1916097566908610366)
     * [Sigon的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/16289577569)
