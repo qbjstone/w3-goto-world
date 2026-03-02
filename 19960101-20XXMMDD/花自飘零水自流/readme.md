@@ -14,6 +14,7 @@ SINK: (Single Income, No Kids)
 * [tvbs - 最怕房客孤獨死　日本房東拒租：獨居老人](https://news.tvbs.com.tw/focus/2456083)
 * [高齡化，日本獨居老人的悲哀 | 草根影響力新視野](https://grinews.com/news/%E9%AB%98%E9%BD%A1%E5%8C%96%EF%BC%8C%E6%97%A5%E6%9C%AC%E7%8D%A8%E5%B1%85%E8%80%81%E4%BA%BA%E7%9A%84%E6%82%B2%E5%93%80/)
 * [olo-magazine - 獨居老人組成「共生社區」  互相守望安享晚年](https://www.olo-magazine.com/%E6%B4%BB%E5%88%B0%E7%9B%A1%E6%95%85%E4%BA%8B/%E7%8D%A8%E5%B1%85%E8%80%81%E4%BA%BA%E5%85%B1%E7%94%9F%E7%A4%BE%E5%8D%80-%E4%BA%92%E7%9B%B8%E5%AE%88%E6%9C%9B%E5%AE%89%E4%BA%AB%E6%99%9A%E5%B9%B4/)
+* [橘世代 -「孤單比犯罪還痛苦」日本老人偷竊案頻傳，只為家人能來探望一眼](https://orange.udn.com/orange/story/121408/8662910)
 
 
 帘卷西风，惊醒旧梦，谁比黄花瘦？
