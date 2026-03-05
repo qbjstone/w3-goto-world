@@ -6,6 +6,7 @@
 * [上面本意是好的，只是下面人执行出错了。这句话有道理吗？ - 马修的回答 - 知乎](https://www.zhihu.com/question/1982793996909708388/answer/1989199661177792204)
 * [上班要有的心眼子 - 言西轻创的文章 - 知乎](https://zhuanlan.zhihu.com/p/1949173488465188069)
 * [階級世代：窮小孩與富小孩的機會不平等](https://zh.z-library.sk/book/0vpx14Nnvr/%E9%9A%8E%E7%B4%9A%E4%B8%96%E4%BB%A3%E7%AA%AE%E5%B0%8F%E5%AD%A9%E8%88%87%E5%AF%8C%E5%B0%8F%E5%AD%A9%E7%9A%84%E6%A9%9F%E6%9C%83%E4%B8%8D%E5%B9%B3%E7%AD%89-our-kids-the-american-dream-in-crisis.html)
+* [为什么当代年轻人如此渴望“重开人生”？ - 李文卓宇的文章 - 知乎](https://zhuanlan.zhihu.com/p/1998505988517565523)
 
 ---
 
