@@ -2,6 +2,7 @@
 ，要是能做到 [司马懿](https://www.zhihu.com/question/650164682/answer/3509296038)、[钟会](https://www.zhihu.com/question/47624829/answer/292509525)、[徐阶](https://www.zhihu.com/question/32297808/answer/131411712)、[胡适](https://www.zhihu.com/question/14706795197/answer/1894085496503768383) ，哪怕烂如 [赵紫阳](http://zh.wikipedia.org/wiki/%E8%B5%B5%E7%B4%AB%E9%98%B3) 得一善终，那也无憾了。人因为自己的认知，周围环境，受教育程度，个人体质，人生经历等等会做出不同的决定，从来没有一边倒过，我们普通人过具体的日子，不要拿宏观去谴责个体选择。
 
 
+* [人会因欢愉而产生“成瘾行为”吗？ - unclean的回答 - 知乎](https://www.zhihu.com/question/1903453201614746761/answer/2012834631284703458)
 * [为什么说一个家族想要跨越阶层，往往需要“献祭”一代人？ - 紫言紫语杂谈的文章 - 知乎](https://zhuanlan.zhihu.com/p/1995314732136146117)
 * [如果哪天你失业了，到处都找不到工作你该怎么办？ - 也说的回答 - 知乎](https://www.zhihu.com/question/1976464636757956266/answer/1984639535590688469)
 * [裁员失业的朋友们，现在怎么样了？ - 觅食的回答 - 知乎](https://www.zhihu.com/question/645107292/answer/1899916055696089501)
