@@ -3,3 +3,4 @@
 * [全球经济下滑蒸发的钱去哪了，就凭空没了么？ - 鞭临天下的回答 - 知乎](https://www.zhihu.com/question/377981933/answer/1939334373259350070)
 * [世界秩序已经崩溃 - Sophia的文章 - 知乎](https://zhuanlan.zhihu.com/p/2006711399599080867)
 * [世界经济进入大停滞了吗？ - 橘叶的回答 - 知乎](https://www.zhihu.com/question/646456959/answer/1894442923715712678)
+* [我们正站在时代的十字路口（下） - 橘叶的文章 - 知乎](https://zhuanlan.zhihu.com/p/1897329268008129316)
