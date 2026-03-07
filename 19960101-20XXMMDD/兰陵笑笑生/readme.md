@@ -7,3 +7,4 @@
 * [教师编在未来真的还会吃香吗？ - 铁芒萁的研习社的回答 - 知乎](https://www.zhihu.com/question/604021521/answer/1997928131550532837)
 * [作为一名教师，感觉工作晋级无望该怎么调整心态？ - 铁芒萁的研习社的回答 - 知乎](https://www.zhihu.com/question/7068525365/answer/2007013701887219539)
 * [教师的真正本领是传授知识，还是唤醒学生的求知欲望？ - 实事求是的回答 - 知乎](https://www.zhihu.com/question/6103152781/answer/51229372327)
+* [BILIBILI - 2025高考 为啥大家反应冷淡的出奇](https://www.bilibili.com/video/BV17FFNzZEWD/)
