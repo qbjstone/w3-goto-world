@@ -2,6 +2,7 @@
 ，要是能做到 [司马懿](https://www.zhihu.com/question/650164682/answer/3509296038)、[钟会](https://www.zhihu.com/question/47624829/answer/292509525)、[徐阶](https://www.zhihu.com/question/32297808/answer/131411712)、[胡适](https://www.zhihu.com/question/14706795197/answer/1894085496503768383) ，哪怕烂如 [赵紫阳](http://zh.wikipedia.org/wiki/%E8%B5%B5%E7%B4%AB%E9%98%B3) 得一善终，那也无憾了。人因为自己的认知，周围环境，受教育程度，个人体质，人生经历等等会做出不同的决定，从来没有一边倒过，我们普通人过具体的日子，不要拿宏观去谴责个体选择。
 
 
+* [如果日本人的性格是菊与刀，那中国人的性格又是什么呢？ - 知乎](https://www.zhihu.com/question/390686225/answer/1999772129462338039)
 * [为什么穷人没有快乐？ - 超人导师的回答 - 知乎](https://www.zhihu.com/question/619819616/answer/1919367609385752200)
 * [为什么中国早期权力必须披着“道德”的外衣？ - 知乎](https://zhuanlan.zhihu.com/p/1988364944140424838)
 * [为什么全产业链国家几乎注定是“低福利国家”？ - Laurence的文章 - 知乎](https://zhuanlan.zhihu.com/p/1990760027947034040)
