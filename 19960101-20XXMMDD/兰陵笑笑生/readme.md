@@ -1,5 +1,6 @@
 说是兰陵笑笑生太看得起现在的大部分教师和考卷出题人了
 
+
 * [是不是现在很多人反感辩证法？为什么？](https://www.zhihu.com/question/446125423/answer/49740081704)
 * [有哪些冷门又有趣的历史知识？ - Blutenzauber的回答 - 知乎](https://www.zhihu.com/question/427926394/answer/88987750222)
 * [《读者》和《意林》明明都是根正苗红的杂志，为什么会刊登一堆崇洋媚外的文章？ - 符拉迪沃斯托克的回答 - 知乎](https://www.zhihu.com/question/1961195019055654730/answer/1975884866777289453)
@@ -12,6 +13,7 @@
 * [高校教师的社会地位和收入都处在普通水平，为什么却会成为压力最大的职业之一？ - 跑酱er的回答 - 知乎](https://www.zhihu.com/question/1993016651038364760/answer/1994366626225746118)
 * [教师编在未来真的还会吃香吗？ - 铁芒萁的研习社的回答 - 知乎](https://www.zhihu.com/question/604021521/answer/1997928131550532837)
 * [作为一名教师，感觉工作晋级无望该怎么调整心态？ - 铁芒萁的研习社的回答 - 知乎](https://www.zhihu.com/question/7068525365/answer/2007013701887219539)
+* [BILIBILI - 【论点】如何在中式教育中幸存？](https://www.bilibili.com/video/BV15ZNMz5Ejm/)
 * [教师的真正本领是传授知识，还是唤醒学生的求知欲望？ - 实事求是的回答 - 知乎](https://www.zhihu.com/question/6103152781/answer/51229372327)
 * [BILIBILI - 2025高考 为啥大家反应冷淡的出奇](https://www.bilibili.com/video/BV17FFNzZEWD/)
 * [货车司机缺口1000万，90后、00后为什么不愿意开货车？ - 青山布衣的回答 - 知乎](https://www.zhihu.com/question/608638288/answer/1996644388353378084)
