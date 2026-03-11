@@ -2,6 +2,7 @@
 * [有哪些俄乌战争的合订本? - 蓝月紫光的回答 - 知乎](https://www.zhihu.com/question/603670489/answer/1948092499928278677)
 * [既然一个男人就能让很多女人怀孕，那为什么男女出生概率是1比1，多出生些女性不是更容易提高种群数量？ - 汪有的回答 - 知乎](https://www.zhihu.com/question/652417205/answer/3480487427)
 * [BILIBILI - 【合订本】万字回顾2025年度热点新闻（1）](https://www.bilibili.com/video/BV1LivYB6Esn)
+* [华莱士正式宣布退市，曾经的「洋快餐之王」到底输在了哪里？退市之后，华莱士还有哪些破局之路？ - 古都闲云的回答 - 知乎](https://www.zhihu.com/question/2015029318942680887/answer/2015073898870383718)
 * [有哪些东西你知道很贵，却不知道居然那么贵？ - 知乎](https://www.zhihu.com/question/66515446)
 * [是否存在共情能力强但冷血的人？ - 孙冉冉的道系生活的回答 - 知乎](https://www.zhihu.com/question/267512045/answer/1789451300)
 * [笨、傻、蠢有什么区别？ - u.14的回答 - 知乎](https://www.zhihu.com/question/9434121840/answer/82763308936)
