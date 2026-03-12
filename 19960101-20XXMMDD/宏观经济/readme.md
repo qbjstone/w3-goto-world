@@ -21,3 +21,4 @@
 * [如何看待浙江一男子捡 iPad 归还女失主，女失主非但不感激反而怀疑男子用硬物砸坏 iPad 摄像头？ - 常允的回答 - 知乎](https://www.zhihu.com/question/482086059/answer/16722910284)
 * [普通人真的一年连10万元人民币都挣不到吗？ - 知乎](https://www.zhihu.com/question/1935638078590022215)
 * [为什么外卖骑手一直不停地招人？ - 时而想起你的回答 - 知乎](https://www.zhihu.com/question/600948842/answer/3545560688)
+* [知识付费已死 - 知乎](https://zhuanlan.zhihu.com/p/2015188982279984736)
