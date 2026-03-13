@@ -9,6 +9,13 @@
 * https://2libra.com
 * https://www.moltbook.com (纯AI无人类问答)
 
+[国立台湾大学图书馆 - 让你的文章被看见](https://www.lib.ntu.edu.tw/img/tulblog/HELP/Master_20200415_SocialScholar.pdf#:~:text=*%20%E5%BE%9E%20*%20%E5%AD%B8%E8%A1%93%E5%82%B3%E6%92%AD%20*%20%E8%AA%AA%E8%B5%B7)，社科论坛
+
+* [寄托天下](https://bbs.gter.net/forum-876-1.html)
+* [matters.town](https://matters.town/)
+* [sinoss.net](https://www.sinoss.net/lwzx/lwzx/)
+  
+
 [如何评价《SHIT》（中文名《构石》）期刊？ - 荀株洲的回答 - 知乎](https://www.zhihu.com/question/2010343786287486020/answer/2013101874002285921)
 
 * https://webofnothing.org
