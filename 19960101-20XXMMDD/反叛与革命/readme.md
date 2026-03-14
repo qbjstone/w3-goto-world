@@ -2,3 +2,4 @@
 
 * https://www.marxists.org/reference/archive/mao/selected-works
 * https://www.sciencedirect.com/book/monograph/9780080229805/selected-works-of-mao-tse-tung
+* https://pmc.ncbi.nlm.nih.gov/articles/PMC9731272/#sec2 （基于语料库的毛泽东演讲英文译本调查）
