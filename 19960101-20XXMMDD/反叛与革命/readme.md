@@ -8,6 +8,7 @@ quora
 
 * https://www.quora.com/How-do-foreigners-view-Mao
 * https://www.quora.com/What-makes-Maos-Little-Red-Book-into-the-second-most-published-printed-sold-bought-and-read-books-in-the-whole-world-after-the-Bible
+* https://qr.ae/pC0fmA
 
 金瓶梅
 
