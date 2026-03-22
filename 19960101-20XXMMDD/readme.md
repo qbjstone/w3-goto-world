@@ -6,6 +6,7 @@
 * [为什么穷人没有快乐？ - 超人导师的回答 - 知乎](https://www.zhihu.com/question/619819616/answer/1919367609385752200)
 * [为什么中国早期权力必须披着“道德”的外衣？ - 知乎](https://zhuanlan.zhihu.com/p/1988364944140424838)
 * [为什么全产业链国家几乎注定是“低福利国家”？ - Laurence的文章 - 知乎](https://zhuanlan.zhihu.com/p/1990760027947034040)
+* [如果书籍会说话 - 《精英的傲慢》](https://www.bilibili.com/video/BV1JuwWzHEtZ)
 * [是什么让你感到人和畜生没有区别？ - 墨苍离的回答 - 知乎](https://www.zhihu.com/question/298054310/answer/1982084762869994423)
 * [为什么说劳动是第一需要，人却更喜欢不劳而获？ - 夏清侯的回答 - 知乎](https://www.zhihu.com/question/1950514346598862905/answer/2001783732928017609)
 * [人会因欢愉而产生“成瘾行为”吗？ - unclean的回答 - 知乎](https://www.zhihu.com/question/1903453201614746761/answer/2012834631284703458)
