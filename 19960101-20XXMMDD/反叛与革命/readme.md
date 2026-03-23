@@ -37,7 +37,7 @@ quora
 * [为什么现在的公务员不收礼了？ - 萄葡干的回答 - 知乎](https://www.zhihu.com/question/1958080253349068908/answer/1989419025516737321)
 * [如何看待不保护弱势男人的国家时没有未来的？ 赛博手推车的回答 - 知乎](https://www.zhihu.com/question/1942353942949369744/answer/2016599153359212788)
 * [如何看待「内卷恰恰是阶级尚未固化的明证」的观点？ - 名字的回答 - 知乎](https://www.zhihu.com/question/1961350493709238427/answer/2007065476187054289)
-* [为什么所有公司的高管都存在内部斗争，内耗严重？ - 知乎](https://www.zhihu.com/question/658625912/answer/1913709145930077721)
+* [为什么所有公司的高管都存在内部斗争，内耗严重？ - Mivraquel的回答 - 知乎](https://www.zhihu.com/question/658625912/answer/1988954766018102174)
 * [BILIBILI - 那些侥幸青史留名的普通人，是怎么过完的一生？](https://www.bilibili.com/video/BV1MywRzfEfy)
 
 ---
