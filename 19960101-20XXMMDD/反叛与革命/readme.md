@@ -28,6 +28,7 @@ quora
 * [BILIBILI - 【吸奇侠】第一奇书《金瓶梅》01 天饼星的陨落](https://www.bilibili.com/video/BV1hw411H79u)
 * [笔趣阁 - 《白话金瓶梅》](https://www.biquge.tw/book/3098865.html)
 * [白话《金瓶梅》第一回 这是一部有毒的杀人小说 - 骁骑读书的文章 - 知乎](https://zhuanlan.zhihu.com/p/432979538)
+* [如果未来全世界范围的互联网信息瞬间失去了99.99%上内容且不可恢复，后来者如何解决和讨论这段历史? - import 潘多拉的回答 - 知乎](https://www.zhihu.com/question/2014521513315951823/answer/2018319368388355252)
 
 ---
 
