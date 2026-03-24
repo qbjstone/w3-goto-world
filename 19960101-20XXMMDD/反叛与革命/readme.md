@@ -51,7 +51,7 @@ quora
 * [你在读博士期间明白的最深刻的道理是什么？ - 晏北的回答 - 知乎](https://www.zhihu.com/question/33336270/answer/2017152958593245871)
 * [bilibili - 金融灰黑产为什么打不死？因为它是制度失败的产物！](https://www.bilibili.com/video/BV1dCqPBFEKe)
 * [为什么电影行业突然就变凉了？ - 阿凯本凯-修罗道的回答 - 知乎](https://www.zhihu.com/question/7491591019/answer/1978010870580809845) (金融思维模式)
-* [BILIBILI - 为什么必须搞共同富裕？](https://www.bilibili.com/video/BV1A3411e7PA) （历来革命的都是不得志秀才）
+* [BILIBILI - 为什么必须搞共同富裕？](https://www.bilibili.com/video/BV1A3411e7PA) （高通胀、高失业率、高债务；历来革命的都是不得志秀才）
 
 ---
 
