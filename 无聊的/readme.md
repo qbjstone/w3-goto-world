@@ -18,6 +18,7 @@
 * [知乎 - 为什么普通人一年存三五万都很难？](https://www.zhihu.com/question/634203381/answer/44795674391)
 * [知乎 - 既然富人财富占社会总财富的 80%，那么鼓励富人消费不就可以了吗？](https://www.zhihu.com/question/583840954/answer/2944661578)
 * [知乎 - 钱最大的用处是什么？](https://www.zhihu.com/question/642299713/answer/1999058268367119445)
+* [未来十年，中国能靠“安全”这张牌，冲击日韩成为欧美游客的亚洲首选吗？ - 操縱股市的回答 - 知乎](https://www.zhihu.com/question/2012661887477765563/answer/2021624147596325747)
 * [知乎 - 《大明王朝 1566》为何看着那么压抑？](https://www.zhihu.com/question/6576248726/answer/1948690839661422145)
 * [知乎 - 全世界人口出生率下降的根本原因是什么？](https://www.zhihu.com/question/3576793167)
 * [知乎 - 为什么招聘都不要 35 岁以上的？](https://www.zhihu.com/question/614315545)
