@@ -67,6 +67,7 @@ quora
 * [BILIBILI - 日本人组团去老挝嫖宿幼女，性压抑背后，是更疯狂的性变态！](https://www.bilibili.com/video/BV12GQmB3Ere)
 * [BILIBILI - 一年狂赚上百亿，深扒“男色经济”产业链，这门生意可不是卖脸！](https://www.bilibili.com/video/BV1XMX5BZEKo)
 * [BILIBILI - 二次元惨遭和谐后 男色成了腾讯米哈游的新财富密码？【X博士奇谈】](https://www.bilibili.com/video/BV1gw4m1f7G1)
+* [粉底液将军 王子君的回答 - 知乎](https://www.zhihu.com/question/2019384773781537965/answer/2021907100469609426) (抽丝剥茧)
 * [面对网上诸多观点，我如何辨别真伪，独立思考？ - 马修的回答 - 知乎](https://www.zhihu.com/question/1955951242636395090/answer/2006356670914245112)
 * [如何看待赵作海因病去世，曾蒙冤入狱11年获65万元国家赔偿? - Dunkirk的回答 - 知乎](https://www.zhihu.com/question/1904217297566041901/answer/1904541006734553583) (这件事超出了我的认知，想不出更有深度的东西了)
 * [呼格吉勒图案真凶是？ - 风大　可稍息否的回答 - 知乎](https://www.zhihu.com/question/65509403/answer/117046768048) (能够制造冤假错案不被发现，钱权必不可少，也算是高智商犯罪)
