@@ -73,4 +73,5 @@ AI对中国就业市场冲击：https://mistysun19.github.io/ai-jobs-cn/cn/
   * 使用正确的计算
   * 得出荒谬的结论   
 
+特调局档案系统：https://welcometosi2.netlify.app/
 
