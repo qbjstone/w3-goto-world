@@ -36,6 +36,7 @@
 * https://www.cna.com.tw 中央社新闻订阅（台湾）
 * https://research.sinica.edu.tw 中央研究院·研之有物（台湾）
 * https://freewarehome.tw 免费软件订阅 （台湾）
+* https://opinion.cw.com.tw 独立评论 （台湾）
 * https://www.todayonline.com 新加坡今日报订阅
 * https://docs.rsshub.app 各种订阅源
 * https://www.revistacomunicar.com/index.php 传播与教育杂志期刊订阅（西班牙语、葡萄牙语、英语）
