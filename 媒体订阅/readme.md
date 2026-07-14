@@ -45,6 +45,7 @@
 * https://www.laodongqushi.com 中国劳动趋势
 * https://sunrisemedium.com 旭时报
 * https://humanitieschina.substack.com/p/060 人文中国
+* https://www.thinkchina.sg 思想中国（新加坡）
 
 
 ### TG
